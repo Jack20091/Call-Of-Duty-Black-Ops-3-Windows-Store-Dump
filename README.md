@@ -8,3 +8,11 @@ https://gofile.io/d/91Sveo
 Backup link
 
 https://www.mediafire.com/file/w3q2fgblfsd4hfn/DUMP.zip/file
+
+BO3 Enhanced Forum
+
+https://forum.ezz.lol/topic/123/bo3-enhanced-guide
+
+Archive of the forum
+
+https://web.archive.org/web/20250214081053/https://forum.ezz.lol/topic/123/bo3-enhanced-guide
