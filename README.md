@@ -1,7 +1,7 @@
 # Call-Of-Duty-Black-Ops-3-Windows-Store-Dump
 This is the windows store dump of COD BO3 not by me it's uploaded here for archiving purposes
 original file and backup link
-Windows Store Dump
+of the Windows Store Dump
 
 https://gofile.io/d/91Sveo
 
