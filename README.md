@@ -16,3 +16,7 @@ https://forum.ezz.lol/topic/123/bo3-enhanced-guide
 Archive of the forum
 
 https://web.archive.org/web/20250214081053/https://forum.ezz.lol/topic/123/bo3-enhanced-guide
+
+archive of this GitHub page
+
+https://web.archive.org/web/20250215132142/https://github.com/Jack20091/Call-Of-Duty-Black-Ops-3-Windows-Store-Dump
